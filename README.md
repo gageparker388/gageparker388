@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learninzxcg ...ів
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...et
+- 📫 How to reach me ...etadfczx
 в
 <!---zxcxzcпм
 gageparker388/gageparker388 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
