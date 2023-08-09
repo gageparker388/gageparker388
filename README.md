@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @gageparker388sadxzc
-- 👀 I’m interested in ...
+- 👀 I’m interested inbgd ...
 - 🌱 I’m currently learninzxcg ...ів
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...etadfczx
+- 💞️ I’m looking to cbcv...etadfczx
 вdssfddsffd
 <!---zxcxzcпм
 gageparker388/gageparker388 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
