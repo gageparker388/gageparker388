@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gbcvbvcageparkerfd388sadxzc
-- 👀 I’m interested inbgd ...
+- 👀 I’m interested inbgdasdzvcxv ...
 - 🌱 I’m currentlyxzcczx learninzxcg ...ів
 - 💞️ I’m looking to cbcv...etazczxs
 вdssfddsffdvvkjacxzc
