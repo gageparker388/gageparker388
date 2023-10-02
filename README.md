@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gbcvbvcageparkerfd388saddfsdfsdfdsfsdasdzxzc
 - 👀 I’m interested inbgdasdzvcxv ...
-- 🌱 I’m currentlyxzcczx learninzxcg ...ів
+- 🌱 I’m currentlyxzcczx learninzxcg sxzc...ів
 - 💞️ I’m looking to cbcv...etazczxsvvbcxvxcvxcv
 вdssfddsffdvvkjacxzcaasdc
 <!---zxcxzcпмbcvbcvbcvxv
