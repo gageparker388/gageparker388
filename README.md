@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gbcvbvcageparkerfd388saddfsdfsdfdsfsdasdzxzc
 - 👀 I’m interested inbgdasdzvcxv ...
 - 🌱 I’m currentlyxzcczx learninzxcg sxzc...ів
-- 💞️ I’m looking to cbcv...etazczxsvvbcxvxcаівмсvxcv
+- 💞️ I’m looking to cbcv...etazcsadzxsvvbcxvxcаівмсvxcv
 вdssfddsffdvvkjacxzcaasdc
 <!---zxcxzcпмbcvbcvbcvxv
 gagep,/rker388/gaczxcx `README.md` (cxzthis file) appears on your GitHub prafgofile.
