@@ -1,6 +1,6 @@
 - 👋 Hi, I’m nnb@gbcvbvcageparkerfd38sads8saddfsdfsdfdsfxdfgfgdxsd,mnasdzxzcads
 - 👀 I’m interested inbgdasdzvcxdhgffdsffvdsad ...
-- 🌱 I’m currentlyxzcczx learninsdfdsdfzxxcvccg sxzcjgfcxvxcаівмсvxcv
+- 🌱 I’m currentlyxzcczx leasdczxarninsdfdsdfzxxcvccg sxzcjgfcxvxcаівмсvxcv
 вdssfddsffdvvkjacxzcaasdc
 <!---zxcxzcпмbcvbcvbcvxv
 gagep,/rker388/gaczxcx `README.md` (cxzthis file) appears on your GitHub prafgofile.
