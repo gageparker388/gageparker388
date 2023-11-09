@@ -1,5 +1,5 @@
 - 👋 Hi, I’m nnb@gbcvbvcageparkerfd38sads8saddhghgjfsdfsdfdsfxdfgfgdxsd,mnasdzxzcadsvvvcxcvx
-- 👀 I’m interested inbgdasdzvcxdhgffdsffvdsad ...
+- 👀 I’m interested ghfbgdasdzvcxdhgffdsffvdsad ...
 - 🌱 I’m currentlyxzcczx leasdczxarnsdxzinsdfdsdfzxxcvccg sxzcjgfcxvxcаівdsadмсvxcv
 вdssfddsffdvvkjacxzcaasdc
 <!---zxcxzcпмbcvbcvbcvxv
